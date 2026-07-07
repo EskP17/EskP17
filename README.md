@@ -8,7 +8,7 @@
   
 - 📫 How to contact me 
 
-email: killiam.dev@gmail.com
+email: killiamjosep@gmail.com
 
 Instagram: @killiam_pv
 
