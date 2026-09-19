@@ -56,6 +56,7 @@ If you're building something interesting, feel free to reach out.
 
 📧 **Email:** [killiamjosep@gmail.com](mailto:killiamjosep@gmail.com)
 📸 **Instagram:** @killiam_pv
+📧🌐 **Linkedin** www.linkedin.com/in/killiamperez
 
 ## ⚡ Beyond Code
 
